@@ -1,9 +1,8 @@
 - 👋 Hi, toi ten Hoang Van Phi
-- 👀 05/07/2004⚠
-- 🌱 PHONE: 0339434112 & 0585858914
-- 💞️ LOVE: NGUYỄN THỊ KIM HIỀN
+- 👀 05/07/2004
+- 🌱 PHONE: 0339434112 & 0339434148 & 0979709485
 - 📫 GMAIL: gayivt@gmail.com
-- https://www.facebook.com/COPYRIGHT.BY.HOANG.VAN.PHI.FB ✳♠♣♥♦
+- https://www.facebook.com/username.nothing ✳♠♣♥♦
 - ↪nguoi cua cong chung↩♨™✔☑
 - [key]↔ <135792468> ↔[copy]❗❕
 - COPYRIGHT ©® BY PHI❎
